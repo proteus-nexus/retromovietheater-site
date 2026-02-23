@@ -1,2 +1,2 @@
 # retromovietheater-site
-roku ads text
+Retro Movie Theater-2 does not authorize programmatic sellers
